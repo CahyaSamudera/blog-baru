@@ -1,6 +1,6 @@
 ---
 title: Cara Gampang Menjadi Youtuber dengan jutaan views
-date: '2020-12-02T19:46:37.121Z'
+date: '2020-12-02T10:46:37.121Z'
 template: 'post'
 draft: false
 slug: 'youtuber'
