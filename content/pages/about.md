@@ -1,13 +1,26 @@
 ---
-title: "About me"
-template: "page"
-socialImage: "/media/image-2.jpg"
+title: 'Admin'
+template: 'page'
+socialImage: '/media/yono.jpg'
 ---
 
-Pellentesque habitant morbi tristique senectus et netus et malesuada fames ac turpis egestas. Vestibulum tortor quam, feugiat vitae, ultricies eget, tempor sit amet, ante.
+![Sucayono](/media/yono.jpg)
 
-![Donec eu libero sit amet quam egestas semper. Aenean ultricies mi vitae est. Mauris placerat eleifend leo. Quisque sit amet est et sapien ullamcorper pharetra. Vestibulum erat wisi, condimentum sed, commodo vitae, ornare sit amet, wisi.](/media/image-2.jpg)
+<p style="text-align: justify;text-justify: inter-word;">
+Hi Semuanya! <br />
+Terima kasih sudah berkunjung ke blogku. Blog ini
+aku buat sebagai sarana untuk berbagi berbagai hal yang menurutku menarik.
+</p>
+<p style="text-align: justify;text-justify: inter-word;">
+Sebelumnya perkenalkan dulu ya! <br />
+Namaku Sucayono atau biasa dipanggil Yono, Suca, Sucay, atau Cahyo.
+Di waktu luang, aku terkadang suka bikin tulisan-tulisan tentang apa
+saja yang muncul di pikiranku, baik itu berupa coretan, curhatan, jurnal, analisis, opini, cerita dan lain-lain. Makannya aku bikin blog ini sebagai wadah untuk mengumpulkan coretan-coretanku. Ya siapa tahu ada yang tertarik untuk membacanya. Dan aku tentunya berharap kalau blog ini dapat mendatangkan manfaat bagi orang-orang yang membacanya, Amin.
+</p>
+<p>Akhir kata, Selamat membaca!</p>
+<p>
+With love and respect, <br />
+Cahyo
+</p>
 
-*Donec eu libero sit amet quam egestas semper. Aenean ultricies mi vitae est. Mauris placerat eleifend leo. Quisque sit amet est et sapien ullamcorper pharetra. Vestibulum erat wisi, condimentum sed, commodo vitae, ornare sit amet, wisi.*
-
-Aenean fermentum, elit eget tincidunt condimentum, eros ipsum rutrum orci, sagittis tempus lacus enim ac dui. Donec non enim in turpis pulvinar facilisis. Ut felis. Praesent dapibus, neque id cursus faucibus, tortor neque egestas augue, eu vulputate magna eros eu erat. Aliquam erat volutpat. Nam dui mi, tincidunt quis, accumsan porttitor, facilisis luctus, metus
+<!-- ![Donec eu libero sit amet quam egestas semper. Aenean ultricies mi vitae est. Mauris placerat eleifend leo. Quisque sit amet est et sapien ullamcorper pharetra. Vestibulum erat wisi, condimentum sed, commodo vitae, ornare sit amet, wisi.](/media/yono.jpg) -->
