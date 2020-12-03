@@ -30,7 +30,7 @@ Akibatnya, para content creator ini berlomba-lomba untuk membuat video yang seme
 Ada tipe youtuber yang suka membuat podcast tentang apa saja, dari mulai kesehatan, pendidikan, agama, sampai kemudian ada podcast yang menjadi ajang klarifikasi segala macam masalah. Ada yang membuat video prank menjadi orang gembel di jalanan, ada yang suka membuat video ber ghibah ria dan lain-lain yang unik-unik yang tidak bisa kita temukan waktu jaman Tuyul dan Mbak Yul merajai pertelevisian Indonesia.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Untuk membuat video yang laku ditonton, tentunya para youtuber itu perlu memeras otak untuk menghasilkan ide-ide yang menarik. Tidak sampai disitu, kemampuan editing yang ciamik dan pembentukan narasi yang apik juga sangat diperlukan agar video-video yang mereka buat tidak monoton dan terkesan gitu-gitu.
+Untuk membuat video yang laku ditonton, tentunya para youtuber itu perlu memeras otak untuk menghasilkan ide-ide yang menarik. Tidak sampai disitu, kemampuan editing yang ciamik dan pembentukan narasi yang apik juga sangat diperlukan agar video-video yang mereka buat tidak monoton dan terkesan gitu-gitu aja.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Tapi disisi lain, sebenarnya ada beberapa tipe Youtuber yang dengan “cerdasnya” tidak perlu bersusah-payah untuk menghasilkan video yang “wah” tetapi mampu untuk mendatangkan jutaan viewers. Alih-alih bikin video kece, mereka cuma “numpang tenar” dari video-video yang sedang “booming”.
