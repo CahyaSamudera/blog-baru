@@ -1,6 +1,6 @@
 ---
 title: Cara Gampang Menjadi Youtuber dengan jutaan views
-date: '2020-12-01T10:46:37.121Z'
+date: '2020-12-02T10:46:37.121Z'
 template: 'post'
 draft: false
 slug: 'youtuber'
@@ -36,7 +36,7 @@ Untuk membuat video yang laku ditonton, tentunya para youtuber itu perlu memeras
 Tapi disisi lain, sebenarnya ada beberapa tipe Youtuber yang dengan “cerdasnya” tidak perlu bersusah-payah untuk menghasilkan video yang “wah” tetapi mampu untuk mendatangkan jutaan viewers. Alih-alih bikin video kece, mereka cuma “numpang tenar” dari video-video yang sedang “booming”.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Salah satu contohnya adalah Youtuber reaction. Iya, mereka hanya menonton video yang sedang viral dan mereka merekam diri mereka sendiri sedang melakukan reaksi atas video itu dan kemudian itu dijadikan sebuah konten yang seringkali ditonton oleh banyak orang, termasuk aku (kadang-kadang aja sih, hehehe). 
+Salah satu contohnya adalah Youtuber reaction. Iya, mereka hanya menonton video yang sedang viral dan mereka merekam diri mereka sendiri sedang melakukan reaksi atas video itu dan kemudian kegiatan itu dijadikan sebuah konten yang seringkali ditonton oleh banyak orang, termasuk aku (kadang-kadang aja sih, hehehe). 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Apalagi kalau ada video tentang Indonesia yang di-react sama bule, wuidih!…. sudah dijamin videonya akan banjir views. Sebut saja video reaction tentang Opening Asian Games yang super fenomenal itu. Tidak terhitung berapa jumlah bule yang meraup limpahan harta dari adsense dengan cuma merekam diri mereka sendiri sedang duduk menonton video. 
