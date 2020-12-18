@@ -1,6 +1,6 @@
 ---
 title: Persembahan Untuk Ibu - Sebuah Cerpen
-date: '2020-12-17T20:28:37.121Z'
+date: '2020-12-18T20:28:37.121Z'
 template: 'post'
 draft: false
 slug: 'persembahan-untuk-ibu-sebuah-cerpen'
