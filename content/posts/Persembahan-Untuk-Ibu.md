@@ -22,7 +22,7 @@ Suara sirine ambulan terdengar kencang mengiringi beberapa perawat yang keluar d
 “Kecelakaan, Dok” jawab Rijal, seorang pemuda yang juga mengantarkan pasien korban kecelakaan itu.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Para perawat dan dokter itu memasuki ruang UGD meninggalkan Rijal yang tidak diperbolehkan masuk. Ia sebenarnya tidak mengenal pasien yang baru saja ia antarkan ke ruang UGD itu. Kebetulan saja ia berada di lokasi kejadian saat peristiwa tabrak lari itu terjadi. Sifat alamiahnya sebagai manusialah yang membujuknya untuk terlibat dan membantu sampai sejauh ini. Tapi kini ia menjadi bingung sendiri karena ia benar-benar tidak tahu apa yang harus ia lakukan. 
+Para perawat dan dokter itu memasuki ruang UGD meninggalkan Rijal yang tidak diperbolehkan masuk. Ia sebenarnya tidak mengenal pasien yang baru saja ia antarkan ke ruang UGD itu. Kebetulan saja ia berada di lokasi kejadian saat peristiwa tabrak lari itu terjadi. Sifat alamiahnya sebagai manusialah yang menggerakannya untuk terlibat dan membantu sampai sejauh ini. Tapi kini ia menjadi bingung sendiri karena ia benar-benar tidak tahu apa yang harus ia lakukan. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Sewaktu di perjalanan menuju ke rumah sakit, ia dan para perawat sempat memeriksa barang bawaan korban, tapi tidak satu petunjuk pun yang menjelaskan identitas korban berhasil ditemukan. Karena itu Rijal jadi tidak tahu harus menghubungi siapa.
@@ -31,7 +31,7 @@ Sewaktu di perjalanan menuju ke rumah sakit, ia dan para perawat sempat memeriks
 Rijal terduduk di kursi mencoba mencari solusi atas keadaan yang dialaminya. Ia tidak sadar kalau seorang perawat sudah berada di depannya untuk menanyakan tentang administrasi pasien yang dibawanya itu. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Ia berpikir sejenak. Ia tidak bisa mengajukan klaim asuransi karena pasien tidak punya kartu identitas. Dan tidak juga mungkin kalau ia yang harus menanggung biayanya. Kecelakaan itu bukan salahnya. Jadi kenapa ia yang harus bertanggung jawab?. Malahan ia adalah orang yang membantu membawa korban kecelakaan itu ke rumah sakit. Kalau saja ia tidak memanggil ambulan dengan cepat setelah peristiwa tabrak lari itu terjadi, mungkin sekarang pasien itu sudah meninggal.
+Ia berpikir sejenak. Ia tidak bisa mengajukan klaim asuransi karena pasien tidak memiliki kartu identitas. Dan tidak juga mungkin kalau ia yang harus menanggung biayanya. Kecelakaan itu bukan salahnya. Jadi kenapa ia yang harus bertanggung jawab?. Malahan ia adalah orang yang membantu membawa korban kecelakaan itu ke rumah sakit. Kalau saja ia tidak memanggil ambulan dengan cepat setelah peristiwa tabrak lari itu terjadi, mungkin sekarang pasien itu sudah meninggal.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Ia juga telah menghabiskan banyak waktunya untuk mengurusi pasien itu disaat ia seharusnya mengurusi urusannya yang lain. Apakah semua bantuan itu belum cukup?. Ia menyelamatkan orang itu dari kematian dengan membawanya ke rumah sakit. Dan kini ia pula yang harus membayar tagihannya?. Tidak, ini sudah kelewat batas. Dan lagi, ia bukanlah orang kaya yang bisa dengan mudah mengeluarkan uang dari sakunya. 
@@ -49,7 +49,7 @@ Ia juga telah menghabiskan banyak waktunya untuk mengurusi pasien itu disaat ia 
 “Baik Pak, mari ikut saya”. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Rijal mengikuti langkah perawat itu menuju kasir. Ia tidak tahu apakah ini adalah hal yang benar untuk dilakukan. Ia hampir saja menolak untuk memikul tanggung jawab itu, tapi nuraninya berkata sebaliknya. Meskipun itu berarti ia harus menunda untuk mewujudkan impiannya. 
+Rijal mengikuti langkah perawat itu menuju kasir. Ia tidak tahu apakah hal yang dilakukannya sudah benar. Ia hampir saja menolak untuk memikul tanggung jawab itu, tapi nuraninya berkata sebaliknya. Meskipun itu berarti ia harus menunda untuk mewujudkan impiannya. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Rijal masih ingat ketika pagi tadi ia dengan bahagianya memberitahu ibunya kalau ia sedang dalam perjalanan untuk mendaftarkan ibunya untuk berangkat umrah tahun ini. Ia berhasil mendapatkan bonus dari kantor atas prestasi menjual 5 unit apartemen di daerah Jakarta. Dan bonus yang ia dapat cukup untuk membiayai mereka berdua pergi ke tanah suci.
@@ -144,9 +144,7 @@ Rijal semakin penasaran.
 Rijal kaget mendengar ucapan ayah Indah. Tapi ia merasa senang karena sebenarnya ia juga menaruh hati pada Indah, perempuan yang ia tolong. Ia bahkan sering mengajak Indah bicara ketika ia masih dalam keadaan koma. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-
 Rijal menoleh ke Ibunya meminta restu. Ibunya mengangguk. Ia kemudian menoleh ke ayah dan ibu Indah, keduanya tersenyum. Sebelum akhirnya ia menoleh ke arah Indah. Rijal memandang wajah perempuan yang dijodohkan dengannya itu. Sungguh sebuah wajah yang sangat rupawan.
-
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Indah tersipu malu dipandangi oleh calon suaminya itu sampai akhirnya keduanya beradu pandang dan tersenyum bersama. 
@@ -156,4 +154,9 @@ Sore itu menjadi sebuah sore yang sangat indah dan membahagiakan bagi Rijal, ibu
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Begitulah Tuhan jika sudah berkehendak. Rencana-Nya pasti lebih indah dibanding rencana manusia. Rijal sudah membuktikan itu. Ia juga bertambah yakin bahwa memberi tidak akan membuatnya jatuh miskin, bahkan sebaliknya. Bahwa semakin banyak kita memberi pertolongan kepada orang lain, maka semakin banyak Tuhan memberikan pertolongan dan kebahagiaan untuk kita. 
+</p>
+<p>------------------------</p>
+
+<p style="text-align: justify;text-justify: inter-word;">
+Note: Cerita ini terinspirasi dari salah satu sahabat baikku Bianca Plaza yang saat ini bekerja sebagai Marketing di Wika, salah satu BUMN di Indonesia yang bergerak di bidang property.
 </p>
