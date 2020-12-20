@@ -71,7 +71,7 @@ Saat itu kami tidak menduga, kalau beberapa hal yang kami impikan itu dapat menj
 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Aku misalnya, mungkin aku tidak kuliah di Oxford seperti impianku dari dulu, atau lebih tepatnya belum berkesempatan untuk berkuliah di sana, tapi Tuhan dengan baiknya telah memberikan aku kesempatan untuk kuliah di UCL London, sebuah universitas kece yang kualitasnya juga tidak kalah dengan Oxford.
+Aku misalnya, mungkin aku tidak kuliah di Oxford seperti impianku dari dulu, atau lebih tepatnya belum berkesempatan untuk berkuliah di sana. Tapi Tuhan dengan baiknya telah memberikan aku kesempatan untuk kuliah di UCL London, sebuah universitas kece yang kualitasnya juga tidak kalah dengan Oxford.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Mokhammad Dina, manusia asal Tegal ini kini telah berhasil dengan bisnis GK Paymentnya dan mendulang omzet usaha bernilai milyaran rupiah perbulan. <br>

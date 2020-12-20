@@ -17,7 +17,7 @@ Namaku Sucayono atau biasa dipanggil Yono, Suca, Sucay, atau Cahyo.
 Di waktu luang, aku terkadang suka bikin tulisan-tulisan tentang apa
 saja yang muncul di pikiranku, baik itu berupa coretan, curhatan, jurnal, analisis, opini, cerita dan lain-lain. Makannya aku bikin blog ini sebagai wadah untuk mengumpulkan coretan-coretanku. Ya siapa tahu ada yang tertarik untuk membacanya. Dan aku tentunya berharap kalau blog ini dapat mendatangkan manfaat bagi orang-orang yang membacanya, Amin.
 </p>
-<p>Akhir kata, Selamat membaca!</p>
+<p>Akhir kata, selamat membaca!</p>
 <p>
 With love and respect, <br />
 Cahyo

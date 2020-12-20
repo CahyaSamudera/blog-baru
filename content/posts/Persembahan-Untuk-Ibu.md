@@ -31,7 +31,7 @@ Sewaktu di perjalanan menuju ke rumah sakit, ia dan para perawat sempat memeriks
 Rijal terduduk di kursi mencoba mencari solusi atas keadaan yang dialaminya. Ia tidak sadar kalau seorang perawat sudah berada di depannya untuk menanyakan tentang administrasi pasien yang dibawanya itu. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Ia berpikir sejenak. Ia tidak bisa mengajukan klaim asuransi karena pasien tidak memiliki kartu identitas. Dan tidak juga mungkin kalau ia yang harus menanggung biayanya. Kecelakaan itu bukan salahnya. Jadi kenapa ia yang harus bertanggung jawab?. Malahan ia adalah orang yang membantu membawa korban kecelakaan itu ke rumah sakit. Kalau saja ia tidak memanggil ambulan dengan cepat setelah peristiwa tabrak lari itu terjadi, mungkin sekarang pasien itu sudah meninggal.
+Ia berpikir sejenak. Ia tidak bisa mengajukan klaim asuransi karena pasien tidak memiliki kartu identitas. Dan tidak mungkin juga kalau ia yang harus menanggung biayanya. Kecelakaan itu bukan salahnya. Jadi kenapa ia yang harus bertanggung jawab?. Malahan ia adalah orang yang membantu membawa korban kecelakaan itu ke rumah sakit. Kalau saja ia tidak memanggil ambulan dengan cepat setelah peristiwa tabrak lari itu terjadi, mungkin sekarang pasien itu sudah meninggal.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Ia juga telah menghabiskan banyak waktunya untuk mengurusi pasien itu disaat ia seharusnya mengurusi urusannya yang lain. Apakah semua bantuan itu belum cukup?. Ia menyelamatkan orang itu dari kematian dengan membawanya ke rumah sakit. Dan kini ia pula yang harus membayar tagihannya?. Tidak, ini sudah kelewat batas. Dan lagi, ia bukanlah orang kaya yang bisa dengan mudah mengeluarkan uang dari sakunya. 
