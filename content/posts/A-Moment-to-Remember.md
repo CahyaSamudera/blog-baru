@@ -18,7 +18,7 @@ socialImage: '/media/moment-toremember.jpg'
 Siang hari tadi entah bagaimana ceritanya aku kembali menonton film korea yang berjudul “A moment to remember”. Sebenarnya sih aku dulu sudah pernah menonton film ini. Dan seperti orang lain pada umumnya yang menonton film ini, aku pun berakhir dengan linangan air mata yang membasahi pipi, huhuhu. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Plis… aku jangan di bully karena nangis nonton film korea. Korea emang deh… jago banget bikin ginian. Kapok deh aku jadinya, hahahaha...
+Plis… aku jangan di-bully karena nangis nonton film korea. Korea emang deh… jago banget bikin ginian. Kapok deh aku jadinya, hahahaha...
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Film ini menceritakan tentang seorang pekerja konstruksi bangunan yang bernama Choi Chul Soo, yang diperankan oleh Jung Woo Sung, yang berpacaran dengan seorang designer yang juga anaknya bos besar di tempat Choi Chul Soo bekerja bernama Kim Su Jin yang diperankan oleh Son Ye Jin. 
@@ -63,7 +63,7 @@ Tapi bagaimanapun seorang ayah itu biasanya sangat sayang terhadap putrinya. Saa
 Melihat pemandangan seperti itu, hati ayah Kim Su Jin yang keras bagai baja terkuat dari Wakanda pun menjadi meleleh dan mencair seperti es batu yang dijemur di panasnya terik matahari. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Ia menjadi tersadar bahwa putrinya sepertinya sudah tidak bisa dipisahkan dari abang mandor bangunan ganteng si pencuri hati anaknya itu (judul ftv banget nih, hahahaha...). Dan ia pun akhirnya merestui hubungan putrinya dengan pemuda pilihannya itu. 
+Ia menjadi tersadar bahwa putrinya sepertinya sudah tidak bisa dipisahkan dari "abang mandor bangunan ganteng si pencuri hati" anaknya itu (judul ftv banget nih, hahahaha...). Dan ia pun akhirnya merestui hubungan putrinya dengan pemuda pilihannya itu. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Dan di akhir cerita, sang Putri dan sang Prajurit Raja menikah dan hidup bahagia selama lama lama lama lama lama lama lama lama lama nyaaaaaaaaaaaa. 
@@ -73,7 +73,7 @@ Dan di akhir cerita, sang Putri dan sang Prajurit Raja menikah dan hidup bahagia
 Eh tunggu dulu!!!. Belum tamat ini. Ini bukan cerita dongeng yang selalu berakhir dengan happy ending. Justru cerita dari kehidupan pasangan Choi Chul Soo dan Kim Su Jin yang katanya menikah di KUA cabang Seoul itu baru dimulai. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Oke lanjut, <br>
+Oke lanjut. <br>
 Seperti pasangan pengantin baru pada umumnya, mereka pun hidup bahagia. Hari-hari mereka dipenuhi dengan keceriaan, canda tawa, kasih sayang, dan hal-hal baik lainnya. Hal itu ditambah dengan kondisi ekonomi Choi Chul Soo yang semakin membaik setelah dirinya berhasil mendapatkan kontrak untuk mengerjakan sebuah proyek besar. <br>
 Tunggu dulu, apa tadi? Proyek Besar?, Hmmm… sounds awesome ya. 
 </p>
