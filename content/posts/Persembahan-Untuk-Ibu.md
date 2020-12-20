@@ -117,7 +117,7 @@ Rijal hanya tersenyum kecil.
 Rijal membaca lembaran kertas itu. Sebuah bukti pembayaran ONH Plus atas nama Rijal dan Ibunya. Rijal berkaca-kaca membacanya. Ia memeluk Ibunya bahagia.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Ia sangat bersyukur atas kejadian yang tidak diduganya itu. Disaat ia sudah merelakan kesempatan untuk pergi ke tanah suci, Tuhan memberikan jalan yang sangat mengejutkan buat mereka. Benarlah sabda-Nya yang mengatakan bahwa “Barang siapa bertaqwa kepada Allah, maka ia akan diberikan jalan keluar dan akan mendapatkan rizki dari arah yang tidak diduga-duga (Ath-Tholaq: 2-3)”.
+Ia sangat bersyukur atas kejadian yang tidak diduganya itu. Disaat ia sudah merelakan kesempatan untuk pergi ke tanah suci, Tuhan memberikan jalan yang sangat mengejutkan buat mereka. Benarlah firman-Nya yang mengatakan bahwa “Barang siapa bertaqwa kepada Allah, maka ia akan diberikan jalan keluar dan akan mendapatkan rizki dari arah yang tidak diduga-duga (Ath-Tholaq: 2-3)”.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Kini Rijal dan ibunya tidak hanya bisa pergi umroh dan mengunjungi tanah suci Mekah dan Madinah seperti impian mereka selama ini, melainkan mereka juga dapat melaksanakan ibadah Haji untuk menunaikan rukun Islam yang kelima. 
