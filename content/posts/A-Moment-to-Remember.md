@@ -15,7 +15,7 @@ socialImage: '/media/moment-toremember.jpg'
 
 <p>Coretan di Malam ini…….</p>
 <p style="text-align: justify;text-justify: inter-word;">
-Siang hari tadi entah bagaimana ceritanya aku kembali menonton film korea yang berjudul “A moment to remember”. Sebenarnya sih aku dulu sudah pernah menonton film ini. Dan seperti orang lain pada umumnya yang menonton film ini, aku pun berakhir dengan linangan air mata yang membasahi pipi, huhuhu. 
+Siang hari tadi entah bagaimana ceritanya aku tiba-tiba menonton film korea yang berjudul “A moment to remember”. Sebenarnya sih aku dulu sudah pernah menonton film ini. Dan seperti orang lain pada umumnya yang menonton film ini, aku pun berakhir dengan linangan air mata yang membasahi pipi, huhuhu. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Plis… aku jangan di-bully karena nangis nonton film korea. Korea emang deh… jago banget bikin ginian. Kapok deh aku jadinya, hahahaha...
@@ -42,10 +42,10 @@ Hmmm sumpah deh, bikin ngiri ngelihatnya….
 Kim Su Jin sangat perhatian dengan pacarnya. Dia membuat baju untuk pacarnya dengan tangannya sendiri. Dia menemani pacarnya saat pacarnya mengikuti ujian arsitek. Dia menemani pacarnya main baseball, dll. Pokoknya cewek idaman banget deh… 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Andai saja aku punya pasangan yang kayak gitu, pasti bahagia banget nih hidupku, hahaha. Kan aku jadi ngayal lagi, hahaha…
+Andai saja aku punya pasangan yang kayak gitu, pasti bahagia banget nih hidupku, hahaha. Kan aku jadi ngehayal lagi, hahaha…
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Eh Cahyo!!!!, bangun lu! Udah siang, jangan ngehalu mulu kerjaannya, hahaha..
+Eh Cahyo!!!!, bangun lu! Udah siang, jangan ngehalu mulu kerjaannya!!!, hahaha..
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Singkat kata singkat cerita, Choi Chul Soo kemudian diperkenalkan kepada keluarga Kim Su Jin dalam sebuah acara makan malam di sebuah restoran. Ayah Kim Su Jin pada awalnya tidak merestui Choi Chul Soo dan bahkan hendak memecat pemuda yang berani memacari putrinya itu. 
@@ -57,7 +57,7 @@ Singkat kata singkat cerita, Choi Chul Soo kemudian diperkenalkan kepada keluarg
 Ya you know lah, orang tua si cewek super tajir, sementara si cowoknya kerjanya tukang bangunan di perusahaan yang dia pimpin. Kalau bahasa orang kota itu istilahnya “strata sosialnya” jauh berbeda.   
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Tapi bagaimanapun seorang ayah itu biasanya sangat sayang terhadap putrinya. Saat Kim Su Jin dirawat di rumah sakit setelah pingsan ketika mereka sedang makan malam bersama di restoran, ia melihat putrinya itu bangun dari tempat tidurnya ketika melihat Choi Chul Soo datang dan memeluknya erat sambil menangis terisak. Kim Su Jin seperti tidak mau melepaskan pelukan itu.
+Tapi bagaimanapun seorang ayah itu biasanya sangat sayang terhadap putrinya. Saat Kim Su Jin dirawat di rumah sakit setelah pingsan ketika mereka sedang makan malam bersama di restoran, ia melihat putrinya itu bangun dari tempat tidurnya ketika melihat Choi Chul Soo datang dan memeluknya erat sambil menangis terisak. Kim Su Jin seperti tidak mau melepaskan pelukannya itu.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Melihat pemandangan seperti itu, hati ayah Kim Su Jin yang keras bagai baja terkuat dari Wakanda pun menjadi meleleh dan mencair seperti es batu yang dijemur di panasnya terik matahari. 
@@ -70,15 +70,15 @@ Dan di akhir cerita, sang Putri dan sang Prajurit Raja menikah dan hidup bahagia
 </p>
 <p><strong>........TAMAT......</strong></p>
 <p style="text-align: justify;text-justify: inter-word;">
-Eh tunggu dulu!!!. Belum tamat ini. Ini bukan cerita dongeng yang selalu berakhir dengan happy ending. Justru cerita dari kehidupan pasangan Choi Chul Soo dan Kim Su Jin yang katanya menikah di KUA cabang Seoul itu baru dimulai. 
+Eh tunggu dulu!!!. Belum tamat ini. Ini bukan cerita dongeng yang selalu berakhir dengan happy ending. Justru cerita sebenarnya dari kehidupan pasangan Choi Chul Soo dan Kim Su Jin yang katanya menikah di KUA cabang Seoul itu baru dimulai. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Oke lanjut. <br>
 Seperti pasangan pengantin baru pada umumnya, mereka pun hidup bahagia. Hari-hari mereka dipenuhi dengan keceriaan, canda tawa, kasih sayang, dan hal-hal baik lainnya. Hal itu ditambah dengan kondisi ekonomi Choi Chul Soo yang semakin membaik setelah dirinya berhasil mendapatkan kontrak untuk mengerjakan sebuah proyek besar. <br>
-Tunggu dulu, apa tadi? Proyek Besar?, Hmmm… sounds awesome ya. 
+Tunggu bentar, apa tadi? Proyek Besar?, Hmmm… sounds awesome ya....... 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Choi Chul Soo kemudian berencana untuk membangunkan istana untuk sang istri tercintanya. Pun dengan istrinya yang selalu setia menemani dan mendukung sang suami tercinta. Mereka seperti sepasang pujangga kehidupan yang sedang menghidupkan mimpi-mimpi mereka. 
+Choi Chul Soo kemudian berencana untuk membangunkan istana untuk sang istri tercintanya. Pun dengan istrinya yang selalu setia menemani dan mendukung sang suami tercinta. Mereka seperti sepasang pujangga kehidupan yang sedang menghidupkan mimpi-mimpi indah mereka. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Beneran deh, kebawa baper banget pas lagi nonton. Jiwa kejombloanku benar-benar meronta-ronta melihat adegan demi adegan dalam film ini, wkwkwkwk….
@@ -130,4 +130,10 @@ Ya begitulah kehidupan teman-teman. Suka tidak suka, mau tidak mau, suatu saat h
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Dan seperti judul dari film ini “A moment to remember” yang kalau diartikan secara harfiah berarti “sebuah momen untuk diingat / dikenang”, maka mari kita ciptakan momen-momen yang indah yang pantas untuk dikenang oleh orang-orang di sekeliling kita. Bahkan ketika kita sudah tidak bersama mereka, atau bahkan ketika kita sudah tidak berada di dunia yang fana ini. 
+</p>
+<p style="text-align: justify;text-justify: inter-word;">
+Sekian dulu untuk coretan kali ini. Sampai bertemu di coretan selanjutnya!. 
+</p>
+<p style="text-align: justify;text-justify: inter-word;">
+-Cahyo-
 </p>
