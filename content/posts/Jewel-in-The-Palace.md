@@ -179,7 +179,7 @@ Jika dalam pernikahan itu dianjurkan bahwa kedua mempelai adalah orang yang seta
 Dan pelajaran terakhir dalam coretan ini yang ingin aku sampaikan dan juga ingin kuteriakan di TELINGAKU SENDIRI adalah: jika kamu ingin mendapatkan pasangan hidup yang punya kualitas kepribadian yang baik, maka kamu juga harus meningkatkan kualitas kepribadianmu juga, agar kamu bisa setara dengan orang yang ingin kamu jadikan sebagai pasangan hidupmu. Dan lebih dari itu, kamu harus bersiap dan bersedia untuk memberikan seluruh hatimu untuknya, dan hanya untuknya saja. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Oke, sepertinya coretan ini sudah sangat panjang, hehehe. Maafkeun ya gaes. Tapi gimana lagi, aku beneran suka sih sama drakor ini, hehehehe......
+Oke, sepertinya coretan ini sudah sangat panjang, hehehe. Maafkeun ya gaes. Tapi gimana lagi, aku beneran suka sih sama drakor ini, jadinya banyak hal yang aku pingin tulis tentang drama ini, hehehehe......
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Tapi sebelum aku tutup, aku ingin menuliskan salah satu "quote" favorit aku dari drama ini. Ketika Jang Geum sedang belajar ilmu pengobatan kepada guru ilmu pengobatan pertamanya yang bernama Jang Duk, sang guru berkata:
