@@ -132,6 +132,9 @@ Sampai disini kita bisa melihat bahwa Jang Geum adalah seorang yang berani menga
 Dan akhirnya, ketekunan, keuletan, kedisiplinan yang ia miliki serta pengorbanan dan kerja kerasnya mengantarkan dirinya mengukir sejarah sebagai dokter wanita pertama di dinasti Joseon. Dan kini namanya harum dan dikenal oleh masyarakat luas di berbagai belahan penjuru bumi.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
+<strong>Pelajaran selanjutnya: dalam situasi tertentu, terkadang akan ada orang yang tidak suka dengan kita meskipun kita sudah menjadi orang yang baik dan jujur. Terkadang mereka juga berbuat sesuatu yang kurang baik kepada kita. Tapi kita tetap harus terus berbuat baik dan hidup dengan menjunjung tinggi nilai-nilai integritas. </strong>
+</p>
+<p style="text-align: justify;text-justify: inter-word;">
 Berbicara tentang drama korea, tentu tidak lengkap rasanya kalau kita tidak membahas tentang sesuatu yang sangat identik dengannya, apalagi kalau bukan soal ‘cinta’, hehehehe. Dan dalam perjalanan hidupnya, Jang Geum akhirnya menikah dengan seorang laki-laki pujaan hatinya yang bernama Min Jung Ho. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
