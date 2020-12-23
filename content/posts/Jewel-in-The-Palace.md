@@ -159,7 +159,7 @@ Ia juga menjadi satu-satunya pejabat istana yang bersedia menjalankan perintah r
 Ia melakukan segala sesuatunya untuk Jang Geum, sang bidadari hatinya. Jika ada pepatah yang bilang bahwa cinta adalah perasaan bahagia ketika melihat orang yang kita cintai merasakan kebahagiaan, maka Min Jung Ho telah melakukan itu.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Ia bersedia menerima segala sangsi dan memikul semua beban di pundaknya sendiri agar ia bisa melihat Jang Geum, wanita yang dikasihinya itu menjalani hal yang disukainya dan mengukirkan namanya sebagai dokter wanita pertama di sejarah dinasti Joseon yang juga berarti dokter pertama dalam sejarah Korea. 
+Ia bersedia menerima segala sangsi dan memikul semua beban di pundaknya sendiri agar ia bisa melihat Jang Geum, wanita yang dikasihinya itu menjalani hal yang disukainya dan mengukirkan namanya sebagai dokter perempuan pertama di sejarah dinasti Joseon yang juga berarti dokter perempuan pertama dalam sejarah Korea. 
 <span  style="font-style: italic;">How sweet is that???.</span>
 
 </p>
