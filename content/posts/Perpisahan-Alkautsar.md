@@ -18,21 +18,27 @@ socialImage: '/media/alkautsar.jpg'
 <p style="text-align: justify;text-justify: inter-word;">
 Sore ini begitu sunyi. Aku duduk termenung sendiri di depan meja belajarku. Aku mengitarkan pandanganku ke sekeliling, ruangan kamarku sudah lengang. Hampir semua barang-barangku sudah aku kemasi dan aku rapihkan. Hanya tersisa beberapa benda saja. Ya… hari ini adalah hari terakhirku menempati ruangan yang telah menjadi tempat berteduhku selama beberapa tahun terakhir ini. Aku akan meninggalkannya untuk sebuah perjalanan jauh. Perjalanan yang sudah menjadi impianku selama ini. Aku menghela nafas panjang. Kupandangi beberapa buku yang masih berserakan di meja belajarku. Pandanganku kemudian terfokus pada sebuah buku merah yang berada di antara tumpukan buku di depanku. Aku mengambilnya. Perlahan kubuka buku itu. Di dalamnya tertulis berbagai tulisan tangan dari orang-orang yang sudah berjuang bersamaku dalam kurun waktu satu tahun terakhir ini. Mereka adalah manusia-manusia kuat yang tulus dan ikhlas berjuang dan mengabdi untuk Negara tercinta, Indonesia. Dan aku, dengan bangga menyebut mereka sebagai “keluarga”.
 </p>
+
 <p style="text-align: justify;text-justify: inter-word;">
 Aku mulai membaca tulisan-tulisan yang ada di buku itu. Aku coba hayati apa yang tertulis di sana, kata demi kata, kalimat demi kalimat, lembar demi lembar. Sangat menyenangkan membaca buku itu. Aku tidak pernah bosan membaca buku itu. Padahal aku sudah teramat sering menamatkan bacaanku di buku yang aku sebut sebagai “tulisan kenangan” itu. Di beberapa titik, buku itu membuat aku tersenyum dan bahkan tertawa. Tetapi di titik lain, buku itu membuat aku ingin menitikan air mata. Sungguh, sebuah buku yang sangat istimewa.
 </p>
+
 <p style="text-align: justify;text-justify: inter-word;">
 Bacaanku pun selesai. Sekali lagi aku mengkhatamkan buku itu. Sejenak aku memejamkan mata. Menarik nafas panjang. Dan kemudian membayangkan wajah-wajah dari orang-orang yang menuliskan tintanya di buku itu. Imajinasiku membawaku ke tempat itu. Sebuah ruangan kecil dimana aku sering menghabiskan waktuku bersama mereka. Di ruangan kecil itu, banyak cerita yang kami buat bersama.
 </p>
+
 <p style="text-align: justify;text-justify: inter-word;">
 Seperti biasa, setiap pagi aku masuk ruangan itu dengan penuh semangat dan suka cita. Mulai membuka pintu, aku mendapati sesosok pria berjanggut lebat yang biasa memutar ceramah agama di YouTube. Dengan memakai earphone, pria yang mengajar pelajaran agama itu tampak khusu’ sekali mendengarkan setiap penjelasan dan paparan yang disampaikan oleh sang penceramah. Tak jauh dari situ, dua wanita yang mengenakan pakaian serba merah sedang serius berdiskusi tentang persiapan ujian nasional dan tetek-bengeknya. Di sebelahnya, seorang pria berpeci hitam panjang sedang memutarkan lagu-lagu Sabyan Gambus yang sangat merdu. Sejenak aku menghampiri meja pria itu, mengucapkan salam untuk kemudian bersenandung dan bersholawatan bersama. Dari meja itu aku menoleh ke kanan, ada dua wanita lagi yang tampak bersiap-siap untuk memulai aktivitas mereka di tempat itu. Secara samar-samar, aku mendengar mereka berbicara tentang tugas Matematika yang akan mereka berikan kepada anak didik mereka hari itu.
 </p>
+
 <p style="text-align: justify;text-justify: inter-word;">
 Aku melangkahkan lagi kakiku, meninggalkan pria berpeci panjang dan dua wanita yang sedang berbincang tentang tugas Matematika. Tak lama, aku menemukan seorang pria berkacamata sedang asyik dengan laptopnya. Jari-jarinya menari lincah di papan keyboard. Sekilas aku membaca judul tulisan yang dia buat, “Tugas Penelitian Kualitatif”. Sebuah kegiatan yang sepertinya sangat serius, jauh berbeda dengan apa yang dikerjakan oleh pria di sebelahnya yang masih terlihat santai sembari memakai pomade dan menyisir rambut lurusnya.
 </p>
+
 <p style="text-align: justify;text-justify: inter-word;">
 Di sebelahnya aku menjumpai dua wanita lagi yang sedang khusu’ main Instagram. Sesekali kedua wanita itu melempar candaan satu sama lain yang terkadang membuat aku ingin ikut tertawa. Seorang pria yang memakai baju olahraga yang duduk di sebelah mereka juga terkadang ikut “nyeletuk” yang membuat suasana pagi di ruangan itu menjadi lebih ramai.
 </p>
+
 <p style="text-align: justify;text-justify: inter-word;">
 Di sebelah kananku, aku melihat seorang wanita paruh baya berkacamata sedang asyik melakukan video call dengan seorang pria di seberang yang dia panggil sebagai “ayang papi”. Aku menyapanya, “hai Kakak”, dia pun menoleh sejenak sembari menawarkan wafer Tan*o yang sudah menjadi cemilan favoritnya. Aku hanya tersenyum. Senyumku kemudian berubah menjadi tawa ketika mendapati perempuan di sebelahnya yang sedang makan nasi uduk dengan lahapnya.
 </p>
@@ -120,3 +126,15 @@ Di dalam hati ini….
 Your brother, <br>
 -Cahyo- 
 </p>
+
+![Al Kautsar 2017-2018](/media/buku-merah.jpeg)
+
+![Al Kautsar 2017-2018](/media/herli-testi.jpg)
+
+![Al Kautsar 2017-2018](/media/heru-testi.jpg)
+
+![Al Kautsar 2017-2018](/media/mutia-testi.jpg)
+
+![Al Kautsar 2017-2018](/media/dila-testi.jpg)
+
+![Al Kautsar 2017-2018](/media/putri-testi.jpg)

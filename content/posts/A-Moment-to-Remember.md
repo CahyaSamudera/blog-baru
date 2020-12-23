@@ -39,13 +39,13 @@ Dari situ mereka pun menjadi saling mengenal satu sama lain. Tak lama setelahnya
 Hmmm sumpah deh, bikin ngiri ngelihatnya….
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Kim Su Jin sangat perhatian dengan pacarnya. Dia membuat baju untuk pacarnya dengan tangannya sendiri. Dia menemani pacarnya saat pacarnya mengikuti ujian arsitek. Dia menemani pacarnya main baseball, dll. Pokoknya cewek idaman banget deh… 
+Kim Su Jin sangat perhatian dengan pacarnya. Dia membuat baju untuk pacarnya dengan tangannya sendiri. Dia menemani pacarnya saat pacarnya mengikuti ujian arsitek. Dia menemani pacarnya main baseball dan dia sangat peduli terhadap pacarnya itu. Pokoknya cewek idaman banget deh… 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Andai saja aku punya pasangan yang kayak gitu, pasti bahagia banget nih hidupku, hahaha. Kan aku jadi ngehayal lagi, hahaha…
+Andai saja aku punya pasangan yang kayak gitu, pasti bahagia banget nih hidupku, hahaha. Kaaaaan aku jadi ngehayal lagi, hahaha…
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Eh Cahyo!!!!, bangun lu! Udah siang, jangan ngehalu mulu kerjaannya!!!, hahaha..
+Eh Cahyo!!!!, bangun lu! udah siang, jangan ngehalu mulu kerjaannya!!!, hahaha...
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Singkat kata singkat cerita, Choi Chul Soo kemudian diperkenalkan kepada keluarga Kim Su Jin dalam sebuah acara makan malam di sebuah restoran. Ayah Kim Su Jin pada awalnya tidak merestui Choi Chul Soo dan bahkan hendak memecat pemuda yang berani memacari putrinya itu. 
@@ -54,7 +54,7 @@ Singkat kata singkat cerita, Choi Chul Soo kemudian diperkenalkan kepada keluarg
 “Who do you think you are, young man?”, begitu mungkin perkataan yang ayah Kim Su Jin ingin sampaikan pada Choi Chul Soo. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Ya you know lah, orang tua si cewek super tajir, sementara si cowoknya kerjanya tukang bangunan di perusahaan yang dia pimpin. Kalau bahasa orang kota itu istilahnya “strata sosialnya” jauh berbeda.   
+Ya <span style="font-style: italic;">you know</span> lah, orang tua si cewek super tajir, sementara si cowoknya kerjanya tukang bangunan di perusahaan yang dia pimpin. Kalau bahasa orang kota itu istilahnya “strata sosialnya” jauh berbeda.   
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Tapi bagaimanapun seorang ayah itu biasanya sangat sayang terhadap putrinya. Saat Kim Su Jin dirawat di rumah sakit setelah pingsan ketika mereka sedang makan malam bersama di restoran, ia melihat putrinya itu bangun dari tempat tidurnya ketika melihat Choi Chul Soo datang dan memeluknya erat sambil menangis terisak. Kim Su Jin seperti tidak mau melepaskan pelukannya itu.
@@ -70,12 +70,15 @@ Dan di akhir cerita, sang Putri dan sang Prajurit Raja menikah dan hidup bahagia
 </p>
 <p><strong>........TAMAT......</strong></p>
 <p style="text-align: justify;text-justify: inter-word;">
-Eh tunggu dulu!!!. Belum tamat ini. Ini bukan cerita dongeng yang selalu berakhir dengan happy ending. Justru cerita sebenarnya dari kehidupan pasangan Choi Chul Soo dan Kim Su Jin yang katanya menikah di KUA cabang Seoul itu baru dimulai. 
+Eh tunggu dulu!!!. Belum tamat ini. Ini bukan cerita dongeng yang selalu berakhir dengan <span style="font-style: italic;">happy ending</span>. Justru cerita sebenarnya dari kehidupan pasangan Choi Chul Soo dan Kim Su Jin yang katanya menikah di KUA cabang Seoul itu baru dimulai. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Oke lanjut. <br>
-Seperti pasangan pengantin baru pada umumnya, mereka pun hidup bahagia. Hari-hari mereka dipenuhi dengan keceriaan, canda tawa, kasih sayang, dan hal-hal baik lainnya. Hal itu ditambah dengan kondisi ekonomi Choi Chul Soo yang semakin membaik setelah dirinya berhasil mendapatkan kontrak untuk mengerjakan sebuah proyek besar. <br>
-Tunggu bentar, apa tadi? Proyek Besar?, Hmmm… sounds awesome ya....... 
+Seperti pasangan pengantin baru pada umumnya, mereka pun hidup bahagia. Hari-hari mereka dipenuhi dengan keceriaan, canda tawa, kasih sayang, dan hal-hal baik lainnya. Hal itu ditambah dengan kondisi ekonomi Choi Chul Soo yang semakin membaik setelah dirinya berhasil mendapatkan kontrak untuk mengerjakan sebuah proyek besar.
+
+</p>
+<p style="text-align: justify;text-justify: inter-word;">
+Tunggu bentar, apa tadi? Proyek Besar?, Hmmm… <span style="font-style: italic;">sounds nice</span> ya....... 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Choi Chul Soo kemudian berencana untuk membangunkan istana untuk sang istri tercintanya. Pun dengan istrinya yang selalu setia menemani dan mendukung sang suami tercinta. Mereka seperti sepasang pujangga kehidupan yang sedang menghidupkan mimpi-mimpi indah mereka. 
@@ -88,13 +91,13 @@ Tapi di saat hidup mereka diliputi dengan kebahagiaan yang sempurna, sebuah keja
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Adalah Kim Su Jin, seorang perempuan muda yang super duper cantik berusia 27 tahun, yang masih sehat wal afiat, segar bugar, penuh energi dan semangat hidup mendadak harus menjalani hari-hari yang menakutkan. Ia didiagnosa menderita penyakit Alzheimer, sebuah penyakit asing yang bahkan susah untuk dilafalkan. Sebuah penyakit yang secara perlahan akan membuat orang yang mengidapnya kehilangan daya ingat. Semacam penghapus yang akan menghapus memori dalam otak. Orang yang mengidapnya lama-lama akan menjadi pikun dan bahkan tidak ingat siapa dirinya. <br>
-"Duh…. How scary is that?”
+Duh…. <span style="font-style: italic;">How scary is that?</span>
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Kehidupan pun berubah 180 derajat celcius, panas banget deh pokoknya. Slogan “life is good” nya LG sudah tidak bisa dipakai oleh Kim Su Jin. Hari-harinya menjadi sangat kejam dan menakutkan. Kim Su Jin jadi seperti orang ling lung. Ia harus meminum obat setiap hari dan diingatkan tentang hal-hal di sekitarnya.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Suatu pagi ketika Choi Chul Soo hendak berangkat kerja, Kim Su Jin memanggilnya dan berkata “Saranghae” dengan penuh perasaan. Permasalahannya adalah Ia memanggil suaminya itu dengan nama “Young Min” yang merupakan mantan kekasihnya. Choi Chul Soo pun menjadi sangat sedih dengan kejadian itu. Ia menjadi ragu siapa sebenarnya yang berada di hati Kim Su Jin, dirinya atau mantan kekasihnya itu.  
+Suatu pagi ketika Choi Chul Soo hendak berangkat kerja, Kim Su Jin memanggilnya dan berkata “Saranghae” dengan penuh perasaan. Masalahnya adalah Ia memanggil suaminya itu dengan nama “Young Min” yang merupakan mantan kekasihnya. Choi Chul Soo pun menjadi sangat sedih dengan kejadian itu. Ia menjadi ragu siapa sebenarnya yang berada di hati Kim Su Jin, dirinya atau mantan kekasihnya itu.  
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Siang harinya ketika Kim Su Jin sedang memandangi foto-foto di dinding rumahnya, ia ingat bahwa nama suaminya adalah Choi Chul Soo bukan Young Min dan karena itu ia merasa sangat bersalah terhadap suaminya atas apa yang dilakukannya pagi tadi. Ia menulis surat untuk Choi Chul Soo yang mengatakan bahwa ia hanya mencintai Choi Chul Soo dan hanya Choi Chul-Soo seorang. Kim Su Jin pun pergi meninggalkan suaminya untuk kemudian dirawat di sebuah rumah sakit yang tidak diketahui oleh suaminya. 
@@ -106,7 +109,7 @@ Suatu ketika akhirnya Choi Chul Soo dapat menemukan tempat dimana istrinya berad
 Choi Chul Soo kemudian membuat reka adegan untuk Kim Su Jin. Ia mencoba mengingatkan sebuah kenangan pada istrinya itu. Kim Su Jin diantar oleh perawat dari rumah sakit tempat ia menjalani pengobatan ke Fami** Mart. Disana Choi Chul Soo sudah menanti Kim Su Jin di pintu masuk toko dengan membawa minuman kaleng c*ke, persis seperti pertama kali mereka bertemu. Memasuki toko, Kim Su Jin melihat dokter yang merawatnya sedang mengambilkan dompet dan minuman c*ke seperti dulu ketika ia lupa membawa barang-barangnya itu. Ia mengitarkan pandangannya ke sekitar, didapatinya orang-orang terdekatnya berada disitu. Ayah, Ibu, adik perempuan, guru mengukir Choi Chul Soo serta Ibu mertuanya berada disana tersenyum dan menangis memandangnya. Untuk sesaat, Kim Su Jin serasa berada di surga. Ia seperti mendapatkan memorinya kembali. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Di akhir scene, Choi Chul Soo, yang selama mengenal Kim Su Jin belum pernah menyatakan perasaannya, akhirnya dapat mengungkapkan kalimat sakral itu dengan penuh penghayatan. Di depan istrinya, kalimat “Saranghae” itu pun diucapkan Choi Chul Soo dengan sungguh-sungguh, sepenuh jiwa, raga dan cinta. 
+Di scene terakhir, Choi Chul Soo, yang selama mengenal Kim Su Jin belum pernah menyatakan perasaannya, akhirnya dapat mengungkapkan kalimat sakral itu dengan penuh penghayatan. Di depan istrinya, kalimat “Saranghae” itu pun diucapkan Choi Chul Soo dengan sungguh-sungguh, sepenuh jiwa, raga dan cinta. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Dan begitulah film ini berakhir. Sebuah film yang menurutku sangat layak untuk ditonton. Film ini memang bukan film terbaik yang pernah aku tonton, tapi film ini tetap memberikan kesan istimewa dalam ingatanku. 
@@ -121,7 +124,7 @@ Kita tidak pernah tahu apa yang akan terjadi kepada kita di masa depan. Sesuatu 
 Bisa saja kehidupan kita menjadi berubah total dari keadaan sekarang (tapi semoga berubahnya ke arah yang lebih baik ya gaes, Amin..). <br>
 Bisa saja peradaban manusia dan dunia berubah dengan drastis. <br>
 Bisa saja alam semesta berubah menjadi sangat berbeda. <br>
-Bisa saja tiba-tiba Indonesia ada musim salju. <br>
+Bisa saja tiba-tiba di Indonesia ada musim salju. <br>
 Bisa saja para ilmuwan Jepang berhasil membuat kloningan Naruto dan membuatnya menjadi karakter di dunia nyata. <br>
 Dan bisa saja aku menikah di tahun 2021, Amiiiinnnnnnn Yaaa Rabb….., kenceng banget ini Aminnya, hehehe. <br>
 </p>
