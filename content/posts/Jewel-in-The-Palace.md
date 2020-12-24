@@ -96,10 +96,10 @@ Kemudian saat dayang istana Jung yang merupakan dayang utama di dapur istana pad
 Kompetisi terdiri dari tiga babak dimana babak pertama dimenangkan oleh dayang istana Choi dan babak kedua dimenangkan oleh dayang istana Han. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Pada babak ketiga yang merupakan babak penentuan, dayang istana Choi melakukan kecurangan dengan menculik dayang istana Han. Akhirnya Jang Geum yang hanya seorang asisten harus melawan dayang istana Choi yang sudah senior dan juga Gem Young yang juga sangat pandai dalam memasak. 
+Pada babak ketiga yang merupakan babak penentuan, dayang istana Choi melakukan kecurangan dengan menculik dayang istana Han sebelum akhirnya ia dibebaskan oleh prajurit kerajaan. Tapi tetap saja dayang istana Han terlambat pulang ke istana untuk mengikuti kompetisi yang sedang berlangsung. Akhirnya Jang Geum yang hanya seorang asisten harus melawan dayang istana Choi yang sudah senior dan juga Gem Young yang juga sangat pandai dalam memasak. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Jang Geum sempat tertinggal 3-1 dalam babak penentuan itu setelah tiga makanan yang disajikannya dinilai tidak lebih baik dari masakan lawannya. Tapi ia tetap berjuang sampai akhir dan mampu membuat skor menjadi imbang 3-3.  Di masakan terakhir, Jang Geum menghidangkan masakan yang sederhana tapi dengan cita rasa yang luar biasa. Ia bercerita bahwa alasan utamanya menghidangkan makanan itu adalah karena makanan itu adalah makanan terakhir yang ia hidangkan kepada ibunya sebelum ibunya meninggal. Sang Raja yang sedari awal kompetisi sudah memuji masakan Jang Geum menjadi terharu dan mengatakan bahwa Jang Geum adalah dayang istana terbaik di kerajaannya. Dengan demikian kompetisi pun dimenangkan oleh guru Jang Geum, dayang istana Han.
+Jang Geum sempat tertinggal 3-1 dalam babak penentuan itu setelah tiga makanan yang disajikannya dinilai tidak lebih baik dari masakan lawannya. Tapi ia tetap berjuang sampai akhir dan mampu membuat skor menjadi imbang 3-3.  Di masakan terakhir, Jang Geum menghidangkan masakan yang sederhana tapi dengan cita rasa yang luar biasa. Ia bercerita bahwa alasan utamanya menghidangkan makanan itu adalah karena makanan itu adalah makanan terakhir yang ia hidangkan kepada ibunya sebelum ibunya meninggal. Sang raja yang sedari awal kompetisi sudah memuji masakan Jang Geum menjadi terharu dan mengatakan bahwa Jang Geum adalah dayang istana terbaik di kerajaannya. Dengan demikian kompetisi pun dimenangkan oleh guru Jang Geum, dayang istana Han.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Hasil akhir itu tentu tidak terlepas dari kegigihan Jang Geum untuk bertarung sampai akhir. Ia sempat diremehkan oleh lawannya dan juga orang-orang yang menyaksikan kompetisi itu. Ia juga sempat tertekan ketika skor pertandingan menunjukan bahwa ia tertinggal jauh. Tapi itu tidak membuatnya menyerah dan berhenti berjuang sampai akhirnya ia bisa membalikkan keadaan dan menang.  
@@ -108,19 +108,19 @@ Hasil akhir itu tentu tidak terlepas dari kegigihan Jang Geum untuk bertarung sa
 <strong>Pelajaran selanjutnya: jangan pernah berhenti untuk berusaha bagaimanapun keadaanya. Selagi masih ada waktu tersisa, maka kita masih punya kesempatan.</strong>
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Berhasil memenangkan kompetisi dan menjadi murid kesayangan dayang utama di dapur istana kerajaan tidak serta merta membuat hidup Jang Geum nyaman. Dayang istana Choi dan keluarganya semakin membenci Jang Geum dan dayang istana Han. Mereka selalu mencari cara untuk mencelakai Jang Geum dan gurunya. Puncaknya, mereka mem-<span  style="font-style: italic;">framing</span> Jang Geum dan dayang istana Han ke dalam kasus makar ketika Raja jatuh sakit. Jang Geum dan dayang istana Han dituduh bertanggung jawab atas sakit sang Raja. Akibatnya keduanya dipenjara dan disiksa sebelum akhirnya diasingkan ke pulau Jeju, sebuah pulau yang cukup jauh dari istana. Dayang istana Han yang tubuhnya sudah lemah meninggal dalam perjalanan ke pulau Jeju. Sementara Jang Geum menjadi sangat sedih karena ditinggal guru yang sudah seperti ibunya itu. 
+Berhasil memenangkan kompetisi dan menjadi murid kesayangan dayang utama di dapur istana kerajaan tidak serta merta membuat hidup Jang Geum nyaman. Dayang istana Choi dan keluarganya semakin membenci Jang Geum dan dayang istana Han. Mereka selalu mencari cara untuk mencelakai Jang Geum dan gurunya. Puncaknya, mereka mem-<span  style="font-style: italic;">framing</span> Jang Geum dan dayang istana Han ke dalam kasus makar ketika Raja jatuh sakit. Jang Geum dan dayang istana Han dituduh bertanggung jawab atas sakit sang raja. Akibatnya keduanya dipenjara dan disiksa sebelum akhirnya diasingkan ke pulau Jeju, sebuah pulau yang cukup jauh dari istana. Dayang istana Han yang tubuhnya sudah lemah meninggal dalam perjalanan ke pulau Jeju. Sementara Jang Geum menjadi sangat sedih karena ditinggal guru yang sudah seperti ibunya itu. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Mendapati ketidakadilan yang menimpa dirinya dan juga gurunya, Jang Geum pun berusaha mencari cara untuk kembali ke istana agar ia dapat membalas dendam dan membersihkan nama baik gurunya. Ia kemudian menemukan cara untuk kembali ke istana dengan menjadi seorang perawat. Ia belajar dengan tekun dan melewati berbagai macam ujian sampai akhirnya dia berhasil menjadi petugas medis wanita di rumah sakit kerajaan. 
+Mendapati ketidakadilan yang menimpa dirinya dan juga gurunya, Jang Geum pun berusaha mencari cara untuk kembali ke istana agar ia dapat membalas dendam dan membersihkan nama baik gurunya. Ia kemudian menemukan cara untuk kembali ke istana dengan menjadi seorang perawat. Ia belajar dengan tekun dan melewati berbagai macam ujian sampai akhirnya dia berhasil menjadi petugas medis perempuan di rumah sakit kerajaan. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Jang Geum mampu menjalankan profesi barunya itu dengan sangat baik. Ia mampu mendiagnosa kehamilan kembar sang Ratu dengan tepat dan juga menyembuhkan penyakit Ibu suri.
+Jang Geum mampu menjalankan profesi barunya itu dengan sangat baik. Ia mampu mendiagnosa kehamilan kembar sang ratu dengan tepat dan juga menyembuhkan penyakit ibu suri.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Suatu ketika dayang istana Choi memakan makanan beracun. Jang Geum mendatangi kediaman dayang istana Choi untuk menyembuhkannya. Saat itu ia bisa saja mencelakai bahkan membunuh dayang istana Choi dengan jarum akupuntur yang ada di tangannya. Tapi ia berhasil melewati ujian itu. Ia tidak menggunakan ilmu pengobatan yang dimilikinya untuk hal-hal yang tidak sepatutnya. 
+Suatu ketika dayang istana Choi memakan makanan beracun. Jang Geum mendatangi kediaman dayang istana Choi untuk menyembuhkannya. Saat itu ia bisa saja mencelakai atau bahkan membunuh dayang istana Choi dengan jarum akupuntur yang ada di tangannya. Tapi ia berhasil melewati ujian itu. Ia tidak menggunakan ilmu pengobatan yang dimilikinya untuk hal-hal yang tidak sepatutnya. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Dan tak lama setelah itu, akhirnya kesempatan itu pun datang. Raja mengalami sakit yang serupa dengan sakit yang dideritanya beberapa tahun lalu yang membuat Jang Geum dan gurunya dikeluarkan dari istana. Ia pun mencoba untuk menyembuhkan Raja meskipun ia harus mempertaruhkan nyawanya. Dan setelah mempelajari sakit raja secara menyeluruh, ia akhirnya dapat mengobati penyakit sang Raja. 
+Dan tak lama setelah itu, akhirnya kesempatan itu pun datang. Raja mengalami sakit yang serupa dengan sakit yang dideritanya beberapa tahun lalu yang membuat Jang Geum dan gurunya dikeluarkan dari istana. Ia pun mencoba untuk menyembuhkan raja meskipun ia harus mempertaruhkan nyawanya. Dan setelah mempelajari sakit raja secara menyeluruh, ia akhirnya dapat mengobati penyakit sang raja. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Kejadian ini membuatnya mampu untuk membersihkan nama baiknya dan juga nama baik gurunya yang sempat tercoreng. Sementara dayang istana Choi dan komplotannya pun mendapatkan hukuman atas kejahatan yang mereka lakukan. 
@@ -129,13 +129,16 @@ Kejadian ini membuatnya mampu untuk membersihkan nama baiknya dan juga nama baik
 Sampai disini kita bisa melihat bahwa Jang Geum adalah seorang yang berani mengambil tindakan meskipun ia sadar akan resiko yang dihadapi. Ia berkali-kali harus mengambil langkah-langkah yang berbahaya bahkan beresiko kehilangan nyawanya. Selain itu ia juga orang yang mempunyai integritas yang tinggi. Ia tidak mau menggunakan ilmu pengobatan yang ia miliki untuk mencelakai orang lain. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Dan akhirnya, ketekunan, keuletan, kedisiplinan yang ia miliki serta pengorbanan dan kerja kerasnya mengantarkan dirinya mengukir sejarah sebagai dokter wanita pertama di dinasti Joseon. Dan kini namanya harum dan dikenal oleh masyarakat luas di berbagai belahan penjuru bumi.
+Dan akhirnya, ketekunan, keuletan, kedisiplinan yang ia miliki serta pengorbanan dan kerja kerasnya mengantarkan dirinya mengukir sejarah sebagai dokter perempuan pertama di dinasti Joseon. Dan kini namanya harum dan dikenal oleh masyarakat luas di berbagai belahan penjuru bumi.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 <strong>Pelajaran selanjutnya: dalam situasi tertentu, terkadang akan ada orang yang tidak suka dengan kita meskipun kita sudah menjadi orang yang baik dan jujur. Terkadang mereka juga berbuat sesuatu yang kurang baik kepada kita. Tapi kita tetap harus terus berbuat baik dan hidup dengan menjunjung tinggi nilai-nilai integritas. </strong>
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Berbicara tentang drama korea, tentu tidak lengkap rasanya kalau kita tidak membahas tentang sesuatu yang sangat identik dengannya, apalagi kalau bukan soal ‘cinta’, hehehehe. Dan dalam perjalanan hidupnya, Jang Geum akhirnya menikah dengan seorang laki-laki pujaan hatinya yang bernama Min Jung Ho. 
+Wah udah lumayan panjang ya coretannya. Tapi masih ada yang pingin aku tulis, jadi kita lanjut aja ya, hehehehe...
+</p>
+<p style="text-align: justify;text-justify: inter-word;">
+Berbicara tentang drama korea, tentu tidak lengkap rasanya kalau kita tidak membahas tentang sesuatu yang sangat identik dengannya, apalagi kalau bukan urusan ‘cinta’, hehehehe. Dan dalam perjalanan hidupnya, Jang Geum akhirnya menikah dengan seorang laki-laki pujaan hatinya yang bernama Min Jung Ho. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Dan sudah barang tentu kalau oppa Min Jung Ho ini bukanlah orang sembarangan. Dia adalah orang yang sangat pandai dan mempunyai kemampuan bela diri yang tinggi. Ia berhasil lulus ujian nasional dalam usia 15 tahun disaat rekan-rekannya berusia jauh lebih tua. Dan ia juga mampu menduduki jabatan tinggi di pemerintahan dalam usia yang relatif masih muda.
@@ -150,7 +153,7 @@ Yang membuat Min Jung Ho begitu istimewa bagi Jang Geum adalah perhatian dan kas
 Ia mengundurkan diri dari jabatannya di pemerintah pusat dan pindah ke pulau Jeju ketika Jang Geum diasingkan ke pulau itu. Ia membantu Jang Geum menjadi petugas medis agar Jang Geum dapat kembali ke istana. Ia juga selalu membantu Jang Geum dalam usahanya untuk membersihkan nama baiknya dari tuduhan makar yang pernah menimpanya. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Ketika Jang Geum sedang berusaha untuk menemukan penyakit sang raja, Ia berusaha membujuk sang Ratu untuk memberikan kesempatan kepada Jang Geum untuk mengobati sang Raja dan menyediakan nyawanya sebagai jaminan untuk itu.
+Ketika Jang Geum sedang berusaha untuk menemukan penyakit sang raja, Ia berusaha membujuk sang ratu untuk memberikan kesempatan kepada Jang Geum untuk mengobati sang raja dan menyediakan nyawanya sebagai jaminan untuk itu.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Tak sampai disitu, ia juga tanpa pikir panjang bersedia untuk mengundurkan diri dari posisinya sebagai pejabat tinggi istana ketika Jang Geum memintanya untuk melarikan diri bersama saat Jang Geum merasa sangat tertekan dengan intrik-intrik istana. 
@@ -159,7 +162,7 @@ Tak sampai disitu, ia juga tanpa pikir panjang bersedia untuk mengundurkan diri 
 Ia juga menjadi satu-satunya pejabat istana yang bersedia menjalankan perintah raja untuk melantik Jang Geum menjadi dokter pribadi raja sekaligus pejabat di kabinet pemerintahan, sebuah posisi yang masih tabu dan ditentang untuk dijabat oleh seorang perempuan pada waktu itu. Meskipun ia akhirnya diasingkan ke pulau terpencil oleh para anggota kabinet karena hal itu.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Ia melakukan segala sesuatunya untuk Jang Geum, sang bidadari hatinya. Jika ada pepatah yang bilang bahwa cinta adalah perasaan bahagia ketika melihat orang yang kita cintai merasakan kebahagiaan, maka Min Jung Ho telah melakukan itu.
+Ia melakukan segala sesuatunya untuk Jang Geum, sang bidadari hatinya. Jika ada pepatah yang mengatakan bahwa cinta adalah perasaan bahagia ketika melihat orang yang kita cintai merasakan kebahagiaan, maka Min Jung Ho telah melakukan itu.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Ia bersedia menerima segala sangsi dan memikul semua beban di pundaknya sendiri agar ia bisa melihat Jang Geum, perempuan yang dikasihinya itu menjalani hal yang disukainya dan mengukirkan namanya sebagai dokter perempuan pertama dalam sejarah dinasti Joseon yang juga berarti dokter perempuan pertama dalam sejarah Korea. 
@@ -179,7 +182,7 @@ Dan sepertinya perlakuan Min Jung Ho ini lah yang membuat Jang Geum memberikan s
 Jika dalam pernikahan itu dianjurkan bahwa kedua mempelai adalah orang yang setara, maka sepertinya pasangan Suh Jang Geum dan Min Jung Ho adalah pasangan yang memenuhi kriteria ini. Mereka begitu serasi dalam banyak hal. Sama-sama orang yang pandai dan terpelajar. Sama-sama pejuang keras. Sama-sama menjunjung tinggi kebenaran dan integritas. Dan yang paling penting, saling mendukung dan mengasihi satu sama lain <span style="font-style: italic;">(what can be better than this?).</span>
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Dan pelajaran terakhir dalam coretan ini yang ingin aku sampaikan dan juga ingin kuteriakan di TELINGAKU SENDIRI adalah: jika kamu ingin mendapatkan pasangan hidup yang punya kualitas kepribadian yang baik, maka kamu juga harus meningkatkan kualitas kepribadianmu juga, agar kamu bisa setara dengan orang yang ingin kamu jadikan sebagai pasangan hidupmu. Dan lebih dari itu, kamu harus bersiap dan bersedia untuk memberikan seluruh hatimu untuknya, dan hanya untuknya saja. 
+Dan pelajaran terakhir dalam coretan ini yang ingin aku sampaikan dan juga ingin kuteriakan di TELINGAKU SENDIRI adalah: jika kamu ingin mendapatkan pasangan hidup yang punya kualitas kepribadian yang baik, maka kamu juga harus meningkatkan kualitas kepribadianmu juga, agar kamu bisa setara dengan orang yang ingin kamu jadikan sebagai pasangan hidupmu itu. Dan lebih dari itu, kamu harus bersiap dan bersedia untuk memberikan seluruh hatimu untuknya, dan hanya untuknya saja. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Oke, sepertinya coretan ini sudah sangat panjang, hehehe. Maafkeun ya gaes. Tapi gimana lagi, aku beneran suka sih sama drakor ini, jadinya banyak hal yang aku pingin tulis tentang drama ini, hehehehe......
