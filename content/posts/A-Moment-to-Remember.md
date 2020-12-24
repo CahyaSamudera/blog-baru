@@ -78,7 +78,7 @@ Seperti pasangan pengantin baru pada umumnya, mereka pun hidup bahagia. Hari-har
 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Tunggu bentar, apa tadi? Proyek Besar?, Hmmm… <span style="font-style: italic;">sounds nice</span> ya....... 
+Tunggu bentar, apa tadi? Proyek Besar?, Hmmm… <span style="font-style: italic;">sounds so nice</span> ya....... 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Choi Chul Soo kemudian berencana untuk membangunkan istana untuk sang istri tercintanya. Pun dengan istrinya yang selalu setia menemani dan mendukung sang suami tercinta. Mereka seperti sepasang pujangga kehidupan yang sedang menghidupkan mimpi-mimpi indah mereka. 
@@ -91,7 +91,7 @@ Tapi di saat hidup mereka diliputi dengan kebahagiaan yang sempurna, sebuah keja
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Adalah Kim Su Jin, seorang perempuan muda yang super duper cantik berusia 27 tahun, yang masih sehat wal afiat, segar bugar, penuh energi dan semangat hidup mendadak harus menjalani hari-hari yang menakutkan. Ia didiagnosa menderita penyakit Alzheimer, sebuah penyakit asing yang bahkan susah untuk dilafalkan. Sebuah penyakit yang secara perlahan akan membuat orang yang mengidapnya kehilangan daya ingat. Semacam penghapus yang akan menghapus memori dalam otak. Orang yang mengidapnya lama-lama akan menjadi pikun dan bahkan tidak ingat siapa dirinya. <br>
-Duh…. <span style="font-style: italic;">How scary is that?</span>
+Duh…. <span style="font-style: italic;">How scary that is!!!</span>
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Kehidupan pun berubah 180 derajat celcius, panas banget deh pokoknya. Slogan “life is good” nya LG sudah tidak bisa dipakai oleh Kim Su Jin. Hari-harinya menjadi sangat kejam dan menakutkan. Kim Su Jin jadi seperti orang ling lung. Ia harus meminum obat setiap hari dan diingatkan tentang hal-hal di sekitarnya.
