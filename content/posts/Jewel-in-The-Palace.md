@@ -173,7 +173,7 @@ Ia bersedia menerima segala sangsi dan memikul semua beban di pundaknya sendiri 
 Dan tidak berhenti disitu, ia juga selalu menyediakan dadanya yang lapang ketika Jang Geum membutuhkan tempat untuk menangis dan bersandar.  
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Ia menjadi pendengar yang baik bagi Jang Geum, membesarkan hati Jang Geum ketika dia sedang sedih dan hampir putus asa, mendukung Jang Geum dalam setiap langkah yang diambilnya. Dan ia rela melepaskan pangkat, harta, bahkan hidupnya untuk perempuan yang dikasihinya itu.
+Ia menjadi pendengar yang baik bagi Jang Geum, membesarkan hati Jang Geum ketika dia sedang sedih dan hampir putus asa, dan selalu mendukung Jang Geum dalam setiap langkah yang diambilnya. Dan ia rela melepaskan pangkat, harta, bahkan hidupnya untuk perempuan yang dikasihinya itu.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Dan sepertinya perlakuan Min Jung Ho ini lah yang membuat Jang Geum memberikan sepenuh hatinya untuk Min Jung Ho. Satunya-satunya untuk Min Jung Ho. Dan hanya untuk Min Jung Ho. Tidak untuk orang lain. Padahal sang raja yang berkuasa pada saat itu juga menyukai Jang Geum dan sempat berniat menjadikannya selir kerajaan. Walaupun akhirnya dia mengurungkan niatnya itu. 
