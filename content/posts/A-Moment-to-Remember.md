@@ -70,12 +70,13 @@ Dan di akhir cerita, sang Putri dan sang Prajurit Raja menikah dan hidup bahagia
 </p>
 <p><strong>........TAMAT......</strong></p>
 <p style="text-align: justify;text-justify: inter-word;">
-Eh tunggu dulu!!!. Belum tamat ini. Ini bukan cerita dongeng yang selalu berakhir dengan <span style="font-style: italic;">happy ending</span>. Justru cerita sebenarnya dari kehidupan pasangan Choi Chul Soo dan Kim Su Jin yang katanya menikah di KUA cabang Seoul itu baru dimulai. 
+Eh tunggu dulu!!!. Belum tamat ini. Ini bukan cerita dongeng yang selalu berakhir dengan <span style="font-style: italic;">happy ending</span>. Justru cerita sebenarnya dari kehidupan pasangan Choi Chul Soo dan Kim Su Jin yang konon katanya menikah di KUA cabang Seoul itu baru dimulai. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Oke lanjut. <br>
+Oke lanjut.
+</p>
+<p style="text-align: justify;text-justify: inter-word;">
 Seperti pasangan pengantin baru pada umumnya, mereka pun hidup bahagia. Hari-hari mereka dipenuhi dengan keceriaan, canda tawa, kasih sayang, dan hal-hal baik lainnya. Hal itu ditambah dengan kondisi ekonomi Choi Chul Soo yang semakin membaik setelah dirinya berhasil mendapatkan kontrak untuk mengerjakan sebuah proyek besar.
-
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Tunggu bentar, apa tadi? Proyek Besar?, Hmmm… <span style="font-style: italic;">sounds so nice</span> ya....... 
@@ -90,7 +91,7 @@ Beneran deh, kebawa baper banget pas lagi nonton. Jiwa kejombloanku benar-benar 
 Tapi di saat hidup mereka diliputi dengan kebahagiaan yang sempurna, sebuah kejadian yang tak disangka-sangka datang menghampiri. Sebuah mimpi buruk yang menghancurkan mimpi-mimpi indah mereka. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Adalah Kim Su Jin, seorang perempuan muda yang super duper cantik berusia 27 tahun, yang masih sehat wal afiat, segar bugar, penuh energi dan semangat hidup mendadak harus menjalani hari-hari yang menakutkan. Ia didiagnosa menderita penyakit Alzheimer, sebuah penyakit asing yang bahkan susah untuk dilafalkan. Sebuah penyakit yang secara perlahan akan membuat orang yang mengidapnya kehilangan daya ingat. Semacam penghapus yang akan menghapus memori dalam otak. Orang yang mengidapnya lama-lama akan menjadi pikun dan bahkan tidak ingat siapa dirinya. <br>
+Adalah Kim Su Jin, seorang perempuan muda yang super duper cantik berusia 27 tahun, yang masih sehat wal afiat, segar bugar, penuh energi dan semangat hidup, mendadak harus menjalani hari-hari yang menakutkan. Ia didiagnosa menderita penyakit Alzheimer, sebuah penyakit asing yang bahkan susah untuk dilafalkan. Sebuah penyakit yang secara perlahan akan membuat orang yang mengidapnya kehilangan daya ingat. Semacam penghapus yang akan menghapus memori dalam otak. Orang yang mengidapnya lama-lama akan menjadi pikun dan bahkan tidak ingat siapa dirinya. <br>
 Duh…. <span style="font-style: italic;">How scary that is!!!</span>
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
@@ -109,7 +110,7 @@ Suatu ketika akhirnya Choi Chul Soo dapat menemukan tempat dimana istrinya berad
 Choi Chul Soo kemudian membuat reka adegan untuk Kim Su Jin. Ia mencoba mengingatkan sebuah kenangan pada istrinya itu. Kim Su Jin diantar oleh perawat dari rumah sakit tempat ia menjalani pengobatan ke Fami** Mart. Disana Choi Chul Soo sudah menanti Kim Su Jin di pintu masuk toko dengan membawa minuman kaleng c*ke, persis seperti pertama kali mereka bertemu. Memasuki toko, Kim Su Jin melihat dokter yang merawatnya sedang mengambilkan dompet dan minuman c*ke seperti dulu ketika ia lupa membawa barang-barangnya itu. Ia mengitarkan pandangannya ke sekitar, didapatinya orang-orang terdekatnya berada disitu. Ayah, Ibu, adik perempuan, guru mengukir Choi Chul Soo serta Ibu mertuanya berada disana tersenyum dan menangis memandangnya. Untuk sesaat, Kim Su Jin serasa berada di surga. Ia seperti mendapatkan memorinya kembali. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Di scene terakhir, Choi Chul Soo, yang selama mengenal Kim Su Jin belum pernah menyatakan perasaannya, akhirnya dapat mengungkapkan kalimat sakral itu dengan penuh penghayatan. Di depan istrinya, kalimat “Saranghae” itu pun diucapkan Choi Chul Soo dengan sungguh-sungguh, sepenuh jiwa, raga dan cinta. 
+Di <span style="font-style: italic;">scene</span> terakhir, Choi Chul Soo, yang selama mengenal Kim Su Jin belum pernah menyatakan perasaannya, akhirnya dapat mengungkapkan kalimat sakral itu dengan penuh penghayatan. Di depan istrinya, kalimat “Saranghae” itu pun diucapkan Choi Chul Soo dengan sungguh-sungguh, sepenuh jiwa, raga dan cinta. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Dan begitulah film ini berakhir. Sebuah film yang menurutku sangat layak untuk ditonton. Film ini memang bukan film terbaik yang pernah aku tonton, tapi film ini tetap memberikan kesan istimewa dalam ingatanku. 

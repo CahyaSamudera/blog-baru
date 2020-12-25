@@ -24,7 +24,7 @@ Ya, Youtube memang sangat populer, bahkan saking populernya Youtube, konon katan
 Sebagai situs yang diakses oleh milyaran makhluk dan spesies dari berbagai belahan dunia, baik dunia nyata, dunia maya, maupun dunia uka-uka, Youtube menjanjikan upah yang menggiurkan bagi para pengunggah videonya atau sebutan kerennya “content creator”.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Akibatnya, para content creator ini berlomba-lomba untuk membuat video yang semenarik mungkin yang mampu menghasilkan jumlah views yang tinggi yang diharapkan akan membuat mereka jadi semakin tajir melintir.
+Akibatnya, para <span style="font-style: italic;">content creator<span> ini berlomba-lomba untuk membuat video yang semenarik mungkin yang mampu menghasilkan jumlah views yang tinggi yang diharapkan akan membuat mereka jadi semakin tajir melintir.
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Ada tipe youtuber yang suka membuat podcast tentang apa saja, dari mulai kesehatan, pendidikan, agama, sampai kemudian ada podcast yang menjadi ajang klarifikasi segala macam masalah. Ada yang membuat video prank menjadi orang gembel di jalanan, ada yang suka membuat video ber ghibah ria dan lain-lain yang unik-unik yang tidak bisa kita temukan waktu jaman Tuyul dan Mbak Yul merajai pertelevisian Indonesia.
@@ -90,5 +90,5 @@ Ya begitulah pendapat ane teman-teman, kalian boleh setuju boleh tidak. Ya naman
 Udah ah, ini ane lagi nulis apaan sih?. Tulisan kagak jelas dan kagak ada manfaatnya juga sepertinya, hahaha. Tapi gimana lagi, lagi gabut. Bingung mau ngapain. Mau ngapel kagak ada yang diapelin. Mau jalan-jalan ntar ketemu kerumunan jadi khawatir kena corona. Mau buka olshop, dompet sedang menipis, huhuhu. Kalau keadaannya gini terus ntar mau daftar transmigrasi ke Mars aja lah ikut Om Elon Musk. Ya siapa tahu bisa kenalan sama alien-alien cakep disana, yekan ???, hahahaha….
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
-Sekian. Sampai jumpa di tulisan selanjutnya!.
+Sekian. Sampai jumpa di coretan selanjutnya!.
 </p>
