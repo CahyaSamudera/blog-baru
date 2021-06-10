@@ -14,9 +14,9 @@ socialImage: '/media/teach.jpg'
 
 ![Persembahan-untuk-Ibu](/media/teach.jpg)
 
-<p>Coretan di sore ini.....</p>
+<p>Coretan di malam ini.....</p>
 <p style="text-align: justify;text-justify: inter-word;">
-Derap kaki langkah seorang perempuan berbaju merah terdengar keras bersahutan. Seperti hendak berlari, perempuan yang mengenakan kaca mata bulat itu terlihat tergopoh-gopoh membawa beberapa buku tebal dalam genggamannya. Sesekali dia melihat ke arah jam tangannya untuk memeriksa waktu yang saat itu sudah menunjukan pukul 07.15 WIB. Masih pagi memang untuk sebagian orang. Tapi tidak untuk perempuan itu, dimana dia harus sampai ke tempat kerjanya sebelum jam 7 pagi. Ia pun mempercepat langkahnya, menuju ruangan tempatnya bekerja. 
+Derap kaki langkah seorang perempuan berbaju merah terdengar keras bersahutan. Seperti hendak berlari, perempuan yang mengenakan kaca mata bulat itu terlihat tergopoh-gopoh membawa beberapa buku tebal dalam genggamannya. Sesekali dia melihat ke arah jam tangannya untuk memeriksa waktu yang saat itu sudah menunjukan pukul 07.15. Masih pagi memang untuk sebagian orang. Tapi tidak untuk perempuan itu, dimana dia harus sampai ke tempat kerjanya sebelum jam 7 pagi. Ia pun mempercepat langkahnya, menuju ruangan tempatnya bekerja. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Dari tempatnya berjalan, ia bisa mendengar suara anak-anak yang bermain di dalam sebuah ruangan kelas. Ia pun semakin mempercepat langkah kakinya menuju ruangan itu.
