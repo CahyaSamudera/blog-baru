@@ -94,7 +94,7 @@ Ibu tentu masih ingat ketika dulu Alya ditanya di depan kelas tentang cita-cita 
 Tapi Ibu membesarkan hati Alya dan terus menyemangati Alya. Ibu selalu bilang bahwa jika kita bekerja keras, maka kita bisa mewujudkan mimpi-mimpi kita. Ibu juga tidak pernah lelah untuk mengajari Alya bahasa Inggris sebagai salah satu persiapan untuk mengejar mimpi Alya. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;font-style: italic;">
-Ibu ingat, saat kita mengikuti perlombaan story telling dulu?. Alya hampir kehilangan kepercayaan diri waktu itu karena para peserta lain terlihat begitu hebat dan memiliki kemampuan bahasa Inggris yang sangat fasih. Tapi Ibu tetap percaya kepada Alya. Bahwa Alya bisa. Dan akhirnya Alya mampu melewati ujian itu. Meskipun hanya menempati posisi juara dua, setidaknya Alya sudah berhasil untuk menaklukan rasa ketidakpercayaan diri yang Alya miliki. 
+Ibu ingat, saat kita mengikuti perlombaan story telling dulu?. Alya hampir kehilangan kepercayaan diri waktu itu karena para peserta dari sekolah lain terlihat begitu hebat dan memiliki kemampuan bahasa Inggris yang sangat fasih. Tapi Ibu tetap percaya kepada Alya. Bahwa Alya bisa. Dan akhirnya Alya mampu melewati ujian itu. Meskipun hanya menempati posisi juara dua, setidaknya Alya sudah berhasil untuk menaklukan rasa ketidakpercayaan diri yang Alya miliki. 
 </p>
 <p style="text-align: justify;text-justify: inter-word;font-style: italic;">
 Alya juga masih ingat apa yang ibu sampaikan waktu itu. Ibu berkata bahwa semua hal di dunia ini tidak ada yang tidak mungkin. Bahwa Alya juga bisa mewujudkan cita-cita dan mimpi Alya. 
