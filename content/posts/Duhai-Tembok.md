@@ -12,7 +12,7 @@ description: 'Sebuah puisi unfaedah yang aku tulis saat gabut, hehehe'
 socialImage: '/media/wall.jpg'
 ---
 
-![Persembahan-untuk-Ibu](/media/wall.jpg)
+![Duhai-Tembok](/media/wall.jpg)
 
 <p>Puisi di malam ini ....</p>
 <p><strong>Duhai Tembok</strong></p>
@@ -50,14 +50,14 @@ Menerobos sekat-sekat perbedaan di antara kita <br/>
 Tapi tembok tetaplah sebuah tembok <br/>
 Dia tetap bisu dalam kesombongannya <br/>
 Dia mendengar tapi tak mau bicara <br/>
-Sama seperti temannya lantai yang hanya diam saja <br/>
+Sama seperti temannya, lantai, yang hanya diam saja <br/>
 
 </p>
 <p style="text-align: justify;text-justify: inter-word;">
 Wahai tembok ... <br/>
 Tetaplah kau dalam kebisuan-mu <br/>
 Tapi aku akan tetap bercerita <br/>
-Tentang dunia yang sudah mulai menggila <br/>
+Tentang dunia yang makin menggila <br/>
 Dan tentang cinta yang selalu hadirkan nestapa <br/>
 
 </p>
